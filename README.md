@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+fale comigo    ylucca09@gmail.com
+
+![](https://media1.tenor.com/m/_q0O6-efpPkAAAAC/fast-nod.gif)
